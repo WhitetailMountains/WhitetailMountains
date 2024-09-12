@@ -1,2 +1,2 @@
-<p align="auto"> <img src="https://files.catbox.moe/q2o2p9.png"width=400>
+<p align="auto"> <img src="https://files.catbox.moe/vwytzr.png"width=500>
 
